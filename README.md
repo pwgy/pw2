@@ -84,5 +84,5 @@
 
 <img src="https://raw.githubusercontent.com/gfw-breaker/banned-news/master/scripts/img/1.png" width="260px"/> &nbsp; <img src="https://raw.githubusercontent.com/gfw-breaker/banned-news/master/scripts/img/2.png" width="260px"/> &nbsp; <img src="https://raw.githubusercontent.com/gfw-breaker/banned-news/master/scripts/img/3.png" width="260px"/>&nbsp;
 
-#### 联系邮箱：begood0513@gmail.com，在联系不上的时候，可以用hotmail向这个邮箱发信
+
 
