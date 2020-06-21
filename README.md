@@ -149,7 +149,3 @@
 
  ### &nbsp;&nbsp;&nbsp;&nbsp; [法轮功真相](https://github.com/begood0513/basic/blob/master/README.md) &nbsp;|&nbsp; [九评共产党](https://github.com/begood0513/9ping.md/blob/master/README.md) &nbsp;|&nbsp; [解体党文化](https://github.com/begood0513/jtdwh.md/blob/master/README.md)   &nbsp;|&nbsp; [共产主义的终极目的](https://github.com/begood0513/gczydzjmd.md/blob/master/README.md) &nbsp;|&nbsp; [魔鬼在统治我们的世界](https://github.com/begood0513/gczydzjmd.md/blob/master/README.md) 
 
-#### 在浏览器中输入短网址 或使用微信、支付宝等二维码工具扫描二维码打开页面, 点击右上角"...", 在弹出菜单中点击“在浏览器打开”； 若网页被举报禁止访问，请点击“恢复申请访问”，将链接复制并粘贴到浏览器中打开（请不要使用QQ或360浏览器）
-
-<img src="https://cdn.jsdelivr.net/gh//img/1.png" width="260px"/> &nbsp; <img src="https://raw.githubusercontent.com/gfw-breaker/banned-news/master/scripts/img/2.png" width="260px"/> &nbsp; <img src="https://raw.githubusercontent.com/gfw-breaker/banned-news/master/scripts/img/3.png" width="260px"/>&nbsp;
-       <td colspan="2" align="center"><img src="https://cdn.jsdelivr.net/gh/opipe/up/oGate65.jpg"/></td>
