@@ -1,6 +1,6 @@
-# <img src="https://img.icons8.com/doodle/2x/goal.png"> <font color="#dd0000"> 最新新闻及疫情时刻更新，欢迎广传，请一起推广。传播真相，尽一份力，因为只有真相能自救! 本页面短网址 https://git.io/JfbK9</font>
+# <img src="https://github.com/pwgy/pic/blob/master/p1.png"> <font color="#dd0000"> 最新新闻及疫情时刻更新，欢迎广传，请一起推广。传播真相，尽一份力，因为只有真相能自救! 本页面短网址 https://git.io/JfbK9</font>
 
-# <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png">  自救专区
+# <img src="https://github.com/pwgy/pic/blob/master/p2.png">  自救专区
 
  ### &nbsp;&nbsp;&nbsp;&nbsp; [今年两会开幕之时，北京一下黑如晚上8，9点钟，电闪雷鸣❗️ 天灭中共非虚言，赶快自救保平安🍎 快快快 📩](https://github.com/pwgy/td)
 
