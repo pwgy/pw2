@@ -2,7 +2,7 @@
 
 ## <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png">  自救专区
 
- ### &nbsp;&nbsp;&nbsp;&nbsp; [今年两会开幕之时，北京一下黑如晚上8，9点钟，电闪雷鸣❗️ 天灭中共非虚言，赶快自救保平安🍎 快快快 📩](https://github.com/pwgy/td)
+ ### &nbsp;&nbsp;&nbsp;&nbsp; [今年两会开幕之时，北京一下黑如晚上8，9点钟，电闪雷鸣❗️ 天灭中共非虚言，赶快自救保平安🍎 快快快 📩](https://github.com/pwgy/td/blob/master/README.md)
 
 ## <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png"> 推荐文章专区
 
