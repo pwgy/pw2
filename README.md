@@ -90,41 +90,42 @@
 
 ## <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png"> 视频专区
 ### &nbsp;&nbsp;&nbsp;&nbsp; [你想看的视频，不想看的视频都在这儿😉] <tr>
+ <Table>
    <tr>
-   <td colspan="2" align=center> 
+   <td colspan="2" align=left> 
 <a href="https://kmyaoayewvhx.xhyte.press/oo.aspx?name=c922850&key=wybpblbewupvzpbn&from=gy22&tag=9877">◆江峰時刻◆講述歷史真相生命冷暖</a><br/>
     </td>
   </tr>
    <tr>
-   <td colspan="2" align=center> 
+   <td colspan="2" align=left> 
 <a href="https://kmyaoayewvhx.xhyte.press/oo.aspx?name=c816850&key=wybpblbewupvzpbn&from=gy22&tag=9877">◆今日点击◆全球华语最热脱口秀</a><br/>
     </td>
   </tr>
   <tr>
-  <td colspan="2" align=center>
+  <td colspan="2" align=left>
 <a href="https://kmyaoayewvhx.xhyte.press/oo.aspx?name=c816860&key=wybpblbewupvzpbn&from=gy22&tag=99733110">◆中国禁闻◆报道中国最深度内幕</a><br/>
    </tr>
   <tr>
-     <td colspan="2" align=center>
+     <td colspan="2" align=left>
 <a href="https://kmyaoayewvhx.xhyte.press/oo.aspx?name=c816855&key=wybpblbewupvzpbn&from=gy22&tag=997110">◆纵论天下◆透析最新热点之陈破空</a><br/>
    </tr>
    <tr>
-      <td colspan="2" align=center>
+      <td colspan="2" align=left>
 <a href="https://kmyaoayewv4hx.xhyte.press/oo.aspx?name=c838308&key=wybpblbewupvzpbn&from=gy22&tag=9973110">◆新闻看点◆著名时政分析之李沐阳</a><br/>
    </tr>
    <tr>
-     <td colspan="2" align=center>
+     <td colspan="2" align=left>
 <a href="https://kmy4aoayewvhx.xhyte.press/oo.aspx?name=c816852&key=wybpblbewupvzpbn&from=gy22&tag=9733110">◆热点互动◆把握时事热点的脉动</a><br/>
    </tr>
    <tr>
-      <td colspan="2" align=center>
+      <td colspan="2" align=left>
 <a href="https://kmyaoaye4wvhx.xhyte.press/oo.aspx?name=c816694&key=wybpblbewupvzpbn&from=gy22&tag=93310">◆雷人网事◆讽刺幽默的诙谐小品</a><br/>
    </tr>
    <tr>
-    <td colspan="2" align=center>
+    <td colspan="2" align=left>
 <a href="https://kmyao4ayewvhx.xhyte.press/oo.aspx?name=c816650&key=wybpblbewupvzpbn&from=gy22&tag=9973110">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
    </tr>
-
+</Table>
 ## <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png"> 中共画皮专区
 
  ### &nbsp;&nbsp;&nbsp;&nbsp; [法轮功真相](https://github.com/begood0513/basic/blob/master/README.md) &nbsp;|&nbsp; [九评共产党](https://github.com/begood0513/9ping.md/blob/master/README.md) &nbsp;|&nbsp; [解体党文化](https://github.com/begood0513/jtdwh.md/blob/master/README.md)   &nbsp;|&nbsp; [共产主义的终极目的](https://github.com/begood0513/gczydzjmd.md/blob/master/README.md) &nbsp;|&nbsp; [魔鬼在统治我们的世界](https://github.com/begood0513/gczydzjmd.md/blob/master/README.md) 
