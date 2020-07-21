@@ -2,6 +2,14 @@
 
 ## <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png"> 推荐文章专区
 
+## <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png">  自救专区
+
+ ### &nbsp;&nbsp;&nbsp;&nbsp; [天灭中共非虚言，赶快自救保平安🍎 快快快 📩](https://github.com/pwgy/td/blob/master/README.md)
+ 
+ ### &nbsp;&nbsp;&nbsp;&nbsp; [三退大潮](https://is.gd/fCPoKo) 
+
+## <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png"> 视频专区
+### &nbsp;&nbsp;&nbsp;&nbsp; [你想看的视频，不想看的视频都在这儿😉] <tr>
 <Table>
 <tr><td colspan="2" align="left"><a href="https://htxqbbjx.xhuyd.press/?name=c1201881&key=encdeuyadochlaxz&from=pw2">钟原：七常委为何至今无一人到洪灾现场 ？</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://htxqbbjx.xhuyd.press/?name=c1201921&key=encdeuyadochlaxz&from=pw2">班农：川普定下“四骑士”计划击垮中共 分两步走</a></td></tr>
@@ -36,14 +44,6 @@
 
 </Table>
 
-## <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png">  自救专区
-
- ### &nbsp;&nbsp;&nbsp;&nbsp; [天灭中共非虚言，赶快自救保平安🍎 快快快 📩](https://github.com/pwgy/td/blob/master/README.md)
- 
- ### &nbsp;&nbsp;&nbsp;&nbsp; [三退大潮](https://is.gd/fCPoKo) 
-
-## <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png"> 视频专区
-### &nbsp;&nbsp;&nbsp;&nbsp; [你想看的视频，不想看的视频都在这儿😉] <tr>
  <Table>
    <tr>
    <td colspan="2" align=left> 
