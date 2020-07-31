@@ -4,48 +4,45 @@
 
 ## <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png">  自救专区
 
- ### &nbsp;&nbsp;&nbsp;&nbsp; [天灭中共非虚言，赶快自救保平安🍎 快快快 📩](https://github.com/pwgy/td/blob/master/README.md)
+ ### &nbsp;&nbsp;&nbsp;&nbsp; [君子不立危樯之下，赶快自救保平安🍎 快快快 📩](https://github.com/pwgy/td/blob/master/README.md)
  
  ### &nbsp;&nbsp;&nbsp;&nbsp; [三退大潮](https://is.gd/fCPoKo) 
  
 ## <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png"> 推荐文章专区
 
 <Table>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206085&key=encdeuyadochlaxz&from=pw2">用不上防空洞的战争</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206098&key=encdeuyadochlaxz&from=pw2">乌鲁木齐防疫挨家挨户贴封条：出门打断腿(视频)</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206097&key=encdeuyadochlaxz&from=pw2">如果拜登当选总统 对在美华人会有何影响</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206066&key=encdeuyadochlaxz&from=pw2">蓬佩奥：美国领导反击中共战 形势在转向</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206073&key=encdeuyadochlaxz&from=pw2">北戴河会议前当地安保如临大敌</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206088&key=encdeuyadochlaxz&from=pw2">美国前共和党总统参选人凯恩因中共病毒去世</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206091&key=encdeuyadochlaxz&from=pw2">美中关系急速恶化 近八成美国人对习近平没信心</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206108&key=encdeuyadochlaxz&from=pw2">向百姓秀肌肉！？雷州半岛军演  广东多地现大量装甲车 （视频）</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206083&key=encdeuyadochlaxz&from=pw2">辽宁西部旱灾 农作物大面积绝收 树木凋零</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206087&key=encdeuyadochlaxz&from=pw2">台湾民主化工程总舵手 李登辉一生即台湾近代史之缩影</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206072&key=encdeuyadochlaxz&from=pw2">中共人工增雨奇效！吉林市暴雨引发洪灾 汽车被冲走</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206086&key=encdeuyadochlaxz&from=pw2">大陆抽砂船“来台湾盗砂”最新下场曝光：当靶打</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206100&key=encdeuyadochlaxz&from=pw2">最悲壮华人首富：一念之差失败破产</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206109&key=encdeuyadochlaxz&from=pw2">八一前，习近平给火箭军“送红包”意欲何为？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206057&key=encdeuyadochlaxz&from=pw2">内幕：中国黑帮和毒枭合作 中共介入制毒洗钱 发起对美化学战</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206095&key=encdeuyadochlaxz&from=pw2">美参院小组通过新法案 个人可起诉中共瞒疫</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206089&key=encdeuyadochlaxz&from=pw2">台最大音响企业从大陆转向印尼 39台商跟进</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206075&key=encdeuyadochlaxz&from=pw2">苹果被指刻意减慢旧手机速度 美多州调查</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206068&key=encdeuyadochlaxz&from=pw2">法轮功案不许评查 大纪元获大量中共内部文件</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206069&key=encdeuyadochlaxz&from=pw2">【禁闻】抓人解聘押后选举 中共噬港不计后果？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206096&key=encdeuyadochlaxz&from=pw2">【禁闻】青海前政协委员王瑞琴:民企痛恨中共体制</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206043&key=encdeuyadochlaxz&from=pw2">纳粹成禁词 中共恐惧国人认清其统治残暴性</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206111&key=encdeuyadochlaxz&from=pw2">【禁闻】疫情失控 乌鲁木齐家家贴封条</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206058&key=encdeuyadochlaxz&from=pw2">川普批邮寄投票造成最大骗局 建议推迟总统大选</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206049&key=encdeuyadochlaxz&from=pw2">李登辉去世：台湾“民主先生”曾因“主权论”引发两岸危机</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206035&key=encdeuyadochlaxz&from=pw2">陆共享单车ofo失联 欠债20亿 党委掌权</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206081&key=encdeuyadochlaxz&from=pw2">朔方：关于六四的断简残篇（4）</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206056&key=encdeuyadochlaxz&from=pw2">王毅骂美国  网民怒斥其“血肉相连”之说</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206071&key=encdeuyadochlaxz&from=pw2">防堵中共解放军渗透窃密 美国率先行动全面出击</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206051&key=encdeuyadochlaxz&from=pw2">中共为“内循环”经济造势 自我封闭还是无奈之举？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206090&key=encdeuyadochlaxz&from=pw2">港府大举取消12人立法会参选资格 传统温和民主派同遭殃</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206047&key=encdeuyadochlaxz&from=pw2">五角大楼从德国撤走万二美军 英国智库指德国是中共插手欧洲切入点</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206048&key=encdeuyadochlaxz&from=pw2">美资深国安官员：特朗普愿接受更大风险抗衡中共侵略</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://zbpwuhnr.xhuyd.press/?name=c1206084&key=encdeuyadochlaxz&from=pw2">美99岁老妇担任飞行员和教官 创世界纪录</a></td></tr>
-
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206567&key=encdeuyadochlaxz&from=pw2">美国有人不小心种了中国神秘种子 长出来这样</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206538&key=encdeuyadochlaxz&from=pw2">美国再制裁2位新疆官员 冻结资产并限制入境</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206570&key=encdeuyadochlaxz&from=pw2">北戴河会前高官大调整 陕西书记突被贬职</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206544&key=encdeuyadochlaxz&from=pw2">清竹：北京的六月飞雪在警示我们什么？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206562&key=encdeuyadochlaxz&from=pw2">常常站错边的国家</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206583&key=encdeuyadochlaxz&from=pw2">重磅！吉利德：210亿个怀疑羟氯喹的理由</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206542&key=encdeuyadochlaxz&from=pw2">风头盖过“习核心”？ 吉林省厅官贺电下台</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206534&key=encdeuyadochlaxz&from=pw2">与世界脱钩打击超大 习近平、李克强密集开会</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206554&key=encdeuyadochlaxz&from=pw2">抗衡美国GPS？ 中共开通北斗三号全球导航系统</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206550&key=encdeuyadochlaxz&from=pw2">金价狂飙背后的真正隐患…黑天鹅即将开始飞翔</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206557&key=encdeuyadochlaxz&from=pw2">中国人民大学转发「李登辉演说文」！陆五毛网军：有内鬼</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206575&key=encdeuyadochlaxz&from=pw2">前中共军官：南海若开战中共则亡</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206571&key=encdeuyadochlaxz&from=pw2">路透：中共央行建议调查支付宝和微信“垄断”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206580&key=encdeuyadochlaxz&from=pw2">前总统克林顿到过恋童岛 新公开文件显示</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206543&key=encdeuyadochlaxz&from=pw2">【禁闻】武汉护士跳楼身亡 疑点重重 网络关注</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206539&key=encdeuyadochlaxz&from=pw2">树木也会“睡觉” 它们将呈现这种状态</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206514&key=encdeuyadochlaxz&from=pw2">陈破空：战争逼近？土共忽悠国人进防空洞 王毅技巧认怂 美领馆厨师另类走红</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206500&key=encdeuyadochlaxz&from=pw2">美国制裁新疆生产建设兵团 冻结资产</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206536&key=encdeuyadochlaxz&from=pw2">中共大举投资基建 大型国企获益 百姓挣扎求生</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206582&key=encdeuyadochlaxz&from=pw2">科技巨头称不知中共盗窃技术 蓬佩奥指「难以置信」</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206531&key=encdeuyadochlaxz&from=pw2">【直播】川普参加应对疫情及热带风暴圆桌会</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206533&key=encdeuyadochlaxz&from=pw2">李家超扬言整顿教育界和立法监管媒体 学者：大清洗来临</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206587&key=encdeuyadochlaxz&from=pw2">【禁闻】百年债券令中共政权陷合法性困境</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206569&key=encdeuyadochlaxz&from=pw2">乌鲁木齐疫情下全面封市 欧洲经济大倒退</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206529&key=encdeuyadochlaxz&from=pw2">钟原：习近平六示军权的背后</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206522&key=encdeuyadochlaxz&from=pw2">一场暴雨 北京、天津立即开启“看海模式”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206568&key=encdeuyadochlaxz&from=pw2">专家谈李登辉的贡献 批驳中共不当指控</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206581&key=encdeuyadochlaxz&from=pw2">卢比奥对黄之锋12位被取消参选声明：美国国际社会对中共攻击须回应</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206560&key=encdeuyadochlaxz&from=pw2">中共黑客攻击生物技术公司 窃取中共肺炎疫苗研究数据</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206559&key=encdeuyadochlaxz&from=pw2">加拿大两公民遭关押六百天 律师将向联合国控告中共</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206548&key=encdeuyadochlaxz&from=pw2">北京判决抖音、微信「侵害个资！」中网民：难怪被外国封杀</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://vzvxvbgy.xhuyd.press/?name=c1206515&key=encdeuyadochlaxz&from=pw2">【睿眼看世界】关键会议上 习近平不提“钱”的事儿 中共的朋友圈要散了</a></td></tr>
 
 </Table>
 
