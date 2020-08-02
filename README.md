@@ -8,7 +8,7 @@
  
  ### &nbsp;&nbsp;&nbsp;&nbsp; [三退大潮](https://is.gd/fCPoKo) 
  
-## <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png"> 推荐文章专区
+## <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png"> 推荐文章专区 （每日更新)
 
 <Table>
 
