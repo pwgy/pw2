@@ -38,16 +38,6 @@
 <tr><td colspan="2" align="left"><a href="https://efvslesb.xhuyd.press/?name=c1207989&key=encdeuyadochlaxz&from=pw2">卫生部长将访台 美国务院：重申美对台支持</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://efvslesb.xhuyd.press/?name=c1208001&key=encdeuyadochlaxz&from=pw2">吊铐 束缚衣 药物 中共对78岁老人上酷刑</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://efvslesb.xhuyd.press/?name=c1208000&key=encdeuyadochlaxz&from=pw2">印度禁用百度和微博 已要求谷歌和苹果下架</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://efvslesb.xhuyd.press/?name=c1207998&key=encdeuyadochlaxz&from=pw2">台湾仍不开放陆生入境 陆委会：系中共阻挠</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://efvslesb.xhuyd.press/?name=c1207999&key=encdeuyadochlaxz&from=pw2">退党中心：21世纪灭共潮推手是3.6亿退党勇士</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://efvslesb.xhuyd.press/?name=c1207997&key=encdeuyadochlaxz&from=pw2">【有冇搞错】临立会收不收DQ议员？港共也分歧</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://efvslesb.xhuyd.press/?name=c1208023&key=encdeuyadochlaxz&from=pw2">蓬佩奥：从五大层面 禁中国电信和科技公司</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://efvslesb.xhuyd.press/?name=c1208014&key=encdeuyadochlaxz&from=pw2">民众忧信息被泄 日本地方政府相继停用TikTok</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://efvslesb.xhuyd.press/?name=c1208006&key=encdeuyadochlaxz&from=pw2">美智库：中共利用“友好协会”渗透统战欧洲</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://efvslesb.xhuyd.press/?name=c1208025&key=encdeuyadochlaxz&from=pw2">武汉起诉政府第4人 状告周先旺索赔200万</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://efvslesb.xhuyd.press/?name=c1208016&key=encdeuyadochlaxz&from=pw2">【禁闻 】8月5日维权动态</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://efvslesb.xhuyd.press/?name=c1207994&key=encdeuyadochlaxz&from=pw2">广州76岁法轮功学员王雪祯遭非法关押逾1年</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://efvslesb.xhuyd.press/?name=c1208007&key=encdeuyadochlaxz&from=pw2">【禁闻】8月5日退党精选</a></td></tr>
 
 </Table>
 
