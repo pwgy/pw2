@@ -49,10 +49,10 @@
 <tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xhuyd.press/?name=c1226860&key=encdeuyadochlaxz&from=pw2">传港公务员下月起须宣誓效忠 拒签或革职</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xhuyd.press/?name=c1226893&key=encdeuyadochlaxz&from=pw2">光大实业董事长朱慧民被查 又一只“白手套”？</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xhuyd.press/?name=c1226894&key=encdeuyadochlaxz&from=pw2">支持川普的民主党议员：川普4年帮助黑人超过拜登40年</a></td></tr>
-<tr><td colspan="2" align="left"><a href="p://framote.com/sef6TBL4XP">韩媒：一名韩国公务员试图投奔朝鲜 遭朝方射杀火化</a></td></tr>
+<tr><td colspan="2" align="left"><a href="http://framote.com/sef6TBL4XP">韩媒：一名韩国公务员试图投奔朝鲜 遭朝方射杀火化</a></td></tr>
 
  </Table>
- 
+
 ## <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png"> 中共画皮专区
 
 
