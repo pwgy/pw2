@@ -42,7 +42,6 @@
 <tr><td colspan="2" align="left"><a href="https://ldqzljvl.xhuyd.press/?name=c1232531&key=encdeuyadochlaxz&from=pw2">全球最大关公像遇麻烦 政府称其违建需整改</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://ldqzljvl.xhuyd.press/?name=c1232537&key=encdeuyadochlaxz&from=pw2">【欺世大观】《林海雪原》座山雕PK杨子荣（上）</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://ldqzljvl.xhuyd.press/?name=c1232512&key=encdeuyadochlaxz&from=pw2">建公物仓“过紧日子” 中共在为战时状态做准备？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dwz.pm/fkjg">沈舟：美军无预警登陆演习再威慑中共</a></td></tr>
 
  </Table>
 
