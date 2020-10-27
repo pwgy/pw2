@@ -11,52 +11,50 @@
 ## <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png"> 推荐文章专区 （每日更新)
 
 <Table>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238597&key=encdeuyadochlaxz&from=pw2">江苏政法委书记主动投案原因热传 妻子疑与薄熙来有染</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238615&key=encdeuyadochlaxz&from=pw2">参议员候选人：亨特电脑涉8未成年女 有参议员女儿</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238532&key=encdeuyadochlaxz&from=pw2">二十年前中共最核心才能看的绝密文件曝光</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238529&key=encdeuyadochlaxz&from=pw2">中共下令整治手机浏览器 锁定华为小米等大品牌</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238598&key=encdeuyadochlaxz&from=pw2">【禁闻】网曝90%VPN中共开发 什么翻墙软件最安全？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238628&key=encdeuyadochlaxz&from=pw2">萌妹飘绝美仙气！脸蛋清纯 一甜笑网暴动了</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238511&key=encdeuyadochlaxz&from=pw2">地摊经济背后：上广深商铺现倒闭潮</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238587&key=encdeuyadochlaxz&from=pw2">中共官方主导抗美援朝影视片纷至沓来 毛岸英蛋炒饭传闻再成讽官题材</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238614&key=encdeuyadochlaxz&from=pw2">亨特奥巴马白宫合影流出 电邮曝带商业伙伴进白宫</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238513&key=encdeuyadochlaxz&from=pw2">中国粮食减产收购价上涨从缅甸进口 江苏农民:粮食短缺危机不可避免</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238602&key=encdeuyadochlaxz&from=pw2">夫妻都中国人却生出「混血女儿」一查真相…人夫沉默了</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238589&key=encdeuyadochlaxz&from=pw2">武汉再现？！网传新疆喀什开始封家门 不准进出</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238575&key=encdeuyadochlaxz&from=pw2">关乐：谁还愿见毛岸英？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238624&key=encdeuyadochlaxz&from=pw2">【禁闻】奇怪！新疆爆疫情 江西扫码测温戴口罩</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238542&key=encdeuyadochlaxz&from=pw2">时事大家谈：高调抗美低调求和 习近平软硬两手孰为真？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238623&key=encdeuyadochlaxz&from=pw2">忧中共操控大学 港大副校长任命引反弹</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238626&key=encdeuyadochlaxz&from=pw2">中共已接近掌控全世界！前德国情报局长急示警 要欧洲封杀华为</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238540&key=encdeuyadochlaxz&from=pw2">菅义伟发表施政演说 谈及习近平访日延期原委</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238565&key=encdeuyadochlaxz&from=pw2">川普：病例上升是因为我们测试、测试、测试 这是假新闻媒体的阴谋</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238527&key=encdeuyadochlaxz&from=pw2">五中全会确定经济发展方向 内循环循环不起来外循环被封闭</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238510&key=encdeuyadochlaxz&from=pw2">中共称报复对台军售的美企 分析：徒劳无功</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238616&key=encdeuyadochlaxz&from=pw2">名家专栏：谨防美国沦为百年前的俄国</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238590&key=encdeuyadochlaxz&from=pw2">偷渡客劫持油轮 英神秘特种部队9分钟夺船逮7人</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238572&key=encdeuyadochlaxz&from=pw2">中共再次宣布制裁美军企 但具体措施“仍需观察”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238625&key=encdeuyadochlaxz&from=pw2">云南女陷杀猪盘被骗68万 报案遇假警又失8千</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238541&key=encdeuyadochlaxz&from=pw2">美日大型军演开始 向中共展示军事力量</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238536&key=encdeuyadochlaxz&from=pw2">拜登：如果再让乔治当上4年 川普：他忘了我的名字 假新闻集团正为他掩饰</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238562&key=encdeuyadochlaxz&from=pw2">贵州茅台股价重挫 市值蒸发900亿</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238553&key=encdeuyadochlaxz&from=pw2">二十年前中共最核心才能看的绝密文件曝光</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238588&key=encdeuyadochlaxz&from=pw2">居台港人助文汇报跟踪拍摄锺翰林 违居留条件及侵犯人权被逐出境</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238566&key=encdeuyadochlaxz&from=pw2">传奇！他一个人掌控韩国20%GDP</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238531&key=encdeuyadochlaxz&from=pw2">喀什再增26例无症状 曾说武汉疫情可防可控染疫专家今次警告疑有超级传染者</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238586&key=encdeuyadochlaxz&from=pw2">律师常玮平揭「老虎凳」酷刑后被带走 报复疑为上层旨意</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238600&key=encdeuyadochlaxz&from=pw2">【禁闻】新疆喀什疫情诡异 17岁女子并非源头</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238610&key=encdeuyadochlaxz&from=pw2">中共当前的战争准备意向：比苏联更危险的敌人</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238578&key=encdeuyadochlaxz&from=pw2">神还原！白宫万圣节大闹本尊 「迷你川普夫妇」头发依旧飞乱</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238530&key=encdeuyadochlaxz&from=pw2">股市研究团体指特朗普连任机率达87% 具明显的胜选历史优势</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238525&key=encdeuyadochlaxz&from=pw2">中国抽砂船集结台湾外岛 居民惊呼形同“包围”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238612&key=encdeuyadochlaxz&from=pw2">大纪元：红三代揭武汉百亿假黄金局中局</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238539&key=encdeuyadochlaxz&from=pw2">再反击 北京要求6家美媒申报在中人员财产资料</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238580&key=encdeuyadochlaxz&from=pw2">孟晚舟在加拿大出庭作证</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238561&key=encdeuyadochlaxz&from=pw2">研究发现：虚拟现实中也可以有触感</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238557&key=encdeuyadochlaxz&from=pw2">升级手机？先看iPhone 12和11有七大不同点</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238563&key=encdeuyadochlaxz&from=pw2">最精确宇宙物质总量占比揭晓 暗能量占69%</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238585&key=encdeuyadochlaxz&from=pw2">全球20城市声援释放12港人 逾3千台湾人穿黑衣撑港</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://caueztin.xhuyd.press/?name=c1238567&key=encdeuyadochlaxz&from=pw2">拜耳将斥资40亿美元 收购美国生技公司AskBio</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1239013&key=encdeuyadochlaxz&from=pw2">罕见！地方政坛地震 4名厅级高官同日落马</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238919&key=encdeuyadochlaxz&from=pw2">57岁女坐轮椅行乞…警一查傻眼「拥5房产」 存款超惊人</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1239016&key=encdeuyadochlaxz&from=pw2">第一夫人梅兰妮亚宾州造势 首度独自站台催票</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238920&key=encdeuyadochlaxz&from=pw2">美国富豪和精英为何支持民主党？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1239017&key=encdeuyadochlaxz&from=pw2">美国11岁才女购露营车厢 自己装修成温馨小家</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238917&key=encdeuyadochlaxz&from=pw2">消息扑朔迷离 4香港社运人士寻庇护或未能进入美领馆 钟翰林遭国安处带走</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238918&key=encdeuyadochlaxz&from=pw2">美媒揭全美600个中共相关团体渗透分化密谋颠覆美国 野心超越大选</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1239015&key=encdeuyadochlaxz&from=pw2">川普密西根造势 呛不能让贺锦丽当上首位女总统</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238936&key=encdeuyadochlaxz&from=pw2">不只搞上姪女！亨特再爆租豪宅开毒趴 每晚花2300美元狂欢</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238998&key=encdeuyadochlaxz&from=pw2">蚂蚁将成史上最大IPO？ 或变最大割韭菜行动</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238970&key=encdeuyadochlaxz&from=pw2">五中全会后 林郑上京讨政策</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238973&key=encdeuyadochlaxz&from=pw2">数字揭真相：谁是抗日战争的中流砥柱？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1239012&key=encdeuyadochlaxz&from=pw2">加州民众不满施政 发起罢免州长纽瑟姆行动</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238957&key=encdeuyadochlaxz&from=pw2">【禁闻】中国经济复苏？ 上海深圳大量实体店倒闭</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238996&key=encdeuyadochlaxz&from=pw2">中共为何怕鬼怪？美驻华使馆转贴：因为怕人</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238979&key=encdeuyadochlaxz&from=pw2">《石涛聚焦》天意 or 失意？拜登太太助选时 拜登标牌默声落地！</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238972&key=encdeuyadochlaxz&from=pw2">川普宾州一日三地集会人气爆棚 选民不要社会主义</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1239022&key=encdeuyadochlaxz&from=pw2">【禁闻】大米减产三成价格调涨 戳中共“丰收”谎言</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1239021&key=encdeuyadochlaxz&from=pw2">美三大动作回击中共制裁 再批准对台军售</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1239002&key=encdeuyadochlaxz&from=pw2">纽约华人民主党：“黑命贵” 让我投票给川普</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1239000&key=encdeuyadochlaxz&from=pw2">亨特短信显示 他与叶简明关系比已知更密切</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238999&key=encdeuyadochlaxz&from=pw2">传三星获美国批准 向华为供应显示屏</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238967&key=encdeuyadochlaxz&from=pw2">惊！美财富五百强企业离开深圳 数千员工失业</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238926&key=encdeuyadochlaxz&from=pw2">箝制舆论 中共下令手机浏览器封杀“违规”自媒体</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1239008&key=encdeuyadochlaxz&from=pw2">渣打：近70%外资企业考虑将产能迁出大陆</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238950&key=encdeuyadochlaxz&from=pw2">加拿大骑警曝光策划拘捕孟晚舟关键24小时 特制袋有防远距离删除电脑手机数据功能</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238914&key=encdeuyadochlaxz&from=pw2">新疆疫情源头未明 上海又曝5人确诊逾30户隔离</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1239007&key=encdeuyadochlaxz&from=pw2">宗教自由日 蓬佩奥批中共压制人民迫害信仰</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238971&key=encdeuyadochlaxz&from=pw2">驳斥拜登 科顿：美国最大威胁是中共 不是俄罗斯</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1239001&key=encdeuyadochlaxz&from=pw2">美国正式取消加拿大进口铝关税 但是…</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1239027&key=encdeuyadochlaxz&from=pw2">毛泽东林彪恩怨始末</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1239011&key=encdeuyadochlaxz&from=pw2">“川普胜选除非闪电劈两次” 老天劈了三次</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238994&key=encdeuyadochlaxz&from=pw2">大纪元：习金互动 吉林秘助朝鲜项目曝光</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238933&key=encdeuyadochlaxz&from=pw2">三星集团会长逝世后 16岁辣妹孙近况曝光！赞激似徐睿知</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1239020&key=encdeuyadochlaxz&from=pw2">防民之口甚于防川 中共五中全会加紧媒体管控</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1239023&key=encdeuyadochlaxz&from=pw2">【禁闻】10月27日维权动态</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238992&key=encdeuyadochlaxz&from=pw2">华盛顿酝酿人事大变动？章天亮解析内在原因</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238944&key=encdeuyadochlaxz&from=pw2">五中全会会场戒备森严 北京异议人士被旅游</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238916&key=encdeuyadochlaxz&from=pw2">38举措出台促民企改革 “新瓶旧酒”难保障私有产权</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238990&key=encdeuyadochlaxz&from=pw2">中共高速建成中越边境墙  网友：像监狱墙  柏林墙再现</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1239025&key=encdeuyadochlaxz&from=pw2">常州大火酿5死2伤 公安称系人为纵火（视频）</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238913&key=encdeuyadochlaxz&from=pw2">五中全会间 内蒙古4厅官落马 1厅官被起诉</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ocgjfugh.xhuyd.press/?name=c1238969&key=encdeuyadochlaxz&from=pw2">研究发现：奶酪的臭味是微生物在对话</a></td></tr>
+</tr>
 
  </Table>
 
