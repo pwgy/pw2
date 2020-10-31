@@ -11,46 +11,54 @@
 ## <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png"> 推荐文章专区 （每日更新)
 
 <Table>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240128&key=encdeuyadochlaxz&from=pw2">五中公报涉台仅15字 港媒：字越少 事越大</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240183&key=encdeuyadochlaxz&from=pw2">【禁闻】传四川突发疫情 酒店内人员不许出门</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240125&key=encdeuyadochlaxz&from=pw2">傻眼？拜登民调至少减1成 失窃拜登密件为何神秘复出？ 4年前预测川普当选如今说...</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240191&key=encdeuyadochlaxz&from=pw2">重磅突发：乔·拜登被乌克兰法庭列为刑事嫌犯</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240146&key=encdeuyadochlaxz&from=pw2">“民营经济”消失？ 经济学者：中共将全面掠夺私人财富</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240176&key=encdeuyadochlaxz&from=pw2">五中全会「2035年远景」暗藏玄机？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240121&key=encdeuyadochlaxz&from=pw2">清竹：美国大选的背后使你更震惊</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240138&key=encdeuyadochlaxz&from=pw2">求婚藏纸箱…男捧玫瑰花蹦出来 惊见陌生女结局神展开</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240120&key=encdeuyadochlaxz&from=pw2">五中全会公报看点：中共战略收缩</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240184&key=encdeuyadochlaxz&from=pw2">中国成最大稀土进口国 对美贸战“王牌”受挫</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240140&key=encdeuyadochlaxz&from=pw2">【禁闻】中共“千年大计”狠折腾 雄安新区再遭强拆</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240174&key=encdeuyadochlaxz&from=pw2">喀什中共病毒案例源自强迫劳动制衣厂 学者也质疑中共对维吾尔人进行疫苗试验</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240180&key=encdeuyadochlaxz&from=pw2">五中公报凸显 习近平最担心美国科技围堵</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240123&key=encdeuyadochlaxz&from=pw2">绿色和平：电动车电池对资源和环境危害巨大 中国加快回收刻不容缓</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240201&key=encdeuyadochlaxz&from=pw2">丁学良：你不能不看的墓碑</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240135&key=encdeuyadochlaxz&from=pw2">印太之行临时增访越南 蓬佩奥：美越关系从未如此牢固</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240172&key=encdeuyadochlaxz&from=pw2">阅读穿越高墙 铁窗挡不了自由的灵魂</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240181&key=encdeuyadochlaxz&from=pw2">10月30日维权动态</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240149&key=encdeuyadochlaxz&from=pw2">又一非裔说唱歌手挺川普 3400万追随者潜力巨大</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240190&key=encdeuyadochlaxz&from=pw2">川普的非裔支持率涨至31% 创几十年来历史新高</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240170&key=encdeuyadochlaxz&from=pw2">医管局清算罢工医护：六成受访者指出于政治目的</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240129&key=encdeuyadochlaxz&from=pw2">专家：拜登涉足儿子业务 邮件是真实的</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240175&key=encdeuyadochlaxz&from=pw2">枫叶国「小粉红」歌颂韩战：加国阵亡者家属情何以堪？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240199&key=encdeuyadochlaxz&from=pw2">二大爷：捐个儿子行不行？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240150&key=encdeuyadochlaxz&from=pw2">点评“十四五”规划 学者：内循环代表中国竞争力跌至谷底</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240171&key=encdeuyadochlaxz&from=pw2">全球法律秩序排名：香港暴跌77级</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240185&key=encdeuyadochlaxz&from=pw2">【禁闻】记者直击：中国敦煌研究员宣言退出中共</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240163&key=encdeuyadochlaxz&from=pw2">因在网上传播“政治谣言” 十余位陕西网民获刑</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240131&key=encdeuyadochlaxz&from=pw2">江西设计师非洲回国无症状阳性 被当局禁锢式隔离近两个月</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240133&key=encdeuyadochlaxz&from=pw2">科技强国的愿景很美好 现实很骨感</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240134&key=encdeuyadochlaxz&from=pw2">美国支持韩国的世贸组织总干事人选</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240147&key=encdeuyadochlaxz&from=pw2">iPhone 12耐不耐摔？这些暴力测试告诉你</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240145&key=encdeuyadochlaxz&from=pw2">辽宁两家国企债券违约 再次印证“投资不过山海关” ？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240155&key=encdeuyadochlaxz&from=pw2">陆警办案搞钱现象泛滥 律师：打开魔盒首步</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240144&key=encdeuyadochlaxz&from=pw2">美警察协会发言人：Antifa类似伊斯兰恐怖组织</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240166&key=encdeuyadochlaxz&from=pw2">江金权出任中央政策研究室主任 二十大能否取代王沪宁充满变数</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240167&key=encdeuyadochlaxz&from=pw2">川普长子：美国染疫死亡人数已寥寥无几</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240196&key=encdeuyadochlaxz&from=pw2">印度要求Google 解释与中国的关联</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240130&key=encdeuyadochlaxz&from=pw2">五中全会确立科技自强为发展战略 受制外交孤立北京仍视香港为白手套？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jqmwojsx.xhuyd.press/?name=c1240157&key=encdeuyadochlaxz&from=pw2">【禁闻】中共高层求变局?学者解析五中全会公报</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240431&key=encdeuyadochlaxz&from=pw2">【十字路口】解密《川普预言》：美国大选谁胜出？前总统们未来下场？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240508&key=encdeuyadochlaxz&from=pw2">大医院治不好的病症小门诊有妙方</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240528&key=encdeuyadochlaxz&from=pw2">出海捕到人面鱼！愁眉苦脸盯着你 渔民吓到不敢吃</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240453&key=encdeuyadochlaxz&from=pw2">沈舟：习近平降调门 想掌军权到2027？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240461&key=encdeuyadochlaxz&from=pw2">结婚就到国外工作7年！老婆竟生3孩 他曝真相邻居秒闭嘴</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240507&key=encdeuyadochlaxz&from=pw2">林辉： 唱打败美帝者移民美国 奇袭白虎团有真相</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240518&key=encdeuyadochlaxz&from=pw2">纳瓦罗：川普连任将强硬抗共 预言拜登将被消失</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240476&key=encdeuyadochlaxz&from=pw2">亨特硬盘门牵出一神秘部门 与拜登做生意竟是它</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240478&key=encdeuyadochlaxz&from=pw2">科学家再次捕获到引力波信号 蕴含信息超乎认知</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240524&key=encdeuyadochlaxz&from=pw2">钟原：李克强对十四五规划的新诠释</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240517&key=encdeuyadochlaxz&from=pw2">内循环成死循环？中共急了 统计局长一段话出现13个“消费”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240454&key=encdeuyadochlaxz&from=pw2">【睿眼看世界】15年后，中国人均GDP超过4万美元，中共这个玩笑开大了</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240525&key=encdeuyadochlaxz&from=pw2">何清涟：美国2020大选——川普必胜</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240529&key=encdeuyadochlaxz&from=pw2">1天4地造势 川普：宾州将拯救美国梦 权利归属人民！</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240467&key=encdeuyadochlaxz&from=pw2">习近平内部讲话：强化自我循环 准备应对极端情况</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240474&key=encdeuyadochlaxz&from=pw2">拜登佛州演讲 当场被民众打断指责</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240514&key=encdeuyadochlaxz&from=pw2">一图看懂：中国人收入怎么这么低？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240500&key=encdeuyadochlaxz&from=pw2">川普要逆转胜？Google搜寻「川普赢」暴增</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240489&key=encdeuyadochlaxz&from=pw2">川普感恩神护佑 住院期间“有奇迹从天而降”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240477&key=encdeuyadochlaxz&from=pw2">党媒挖苦美国租房市场危机 评论大翻车</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240487&key=encdeuyadochlaxz&from=pw2">民主党左派：拜登领先川普的民调至少砍半</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240481&key=encdeuyadochlaxz&from=pw2">中科院院士建议被忽略 习接连提创新遭质疑</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240527&key=encdeuyadochlaxz&from=pw2">光环褪色？苹果市值自9月高点迄今蒸发4500亿美元</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240498&key=encdeuyadochlaxz&from=pw2">陈光诚：给中共党魁讲个故事</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240455&key=encdeuyadochlaxz&from=pw2">《石涛聚焦》鬼节：拜登之子亨特亵渎神明的视频爆光</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240468&key=encdeuyadochlaxz&from=pw2">老黑：据说中国正在推广疫苗，实际上经过知情人爆料，真相竟然是......</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240471&key=encdeuyadochlaxz&from=pw2">刚刚曝出真正十月惊奇 最新料又涉老拜登扎克伯格 老天爷还送来了对比一幕</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240456&key=encdeuyadochlaxz&from=pw2">【江峰时刻】直播：江峰 方伟周末互动</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240506&key=encdeuyadochlaxz&from=pw2">颜丹：说说“中国民众具有较高的安全感”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240501&key=encdeuyadochlaxz&from=pw2">香港七人被控暴动罪 庭审被裁定无罪获释</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240497&key=encdeuyadochlaxz&from=pw2">程晓农：共产党国家科技发展的“成功”与陷阱</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240516&key=encdeuyadochlaxz&from=pw2">拜登丑闻证人：对腐败默不作声的媒体会受历史批判</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240488&key=encdeuyadochlaxz&from=pw2">一线采访：“城城找房”全国多地爆雷 三方维权遭警镇压</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240484&key=encdeuyadochlaxz&from=pw2">习近平高喊“抗美援朝” 中共中央坚拒美中脱钩</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240470&key=encdeuyadochlaxz&from=pw2">曝底层现况！中国网红惊叹中国比想像中穷：活得下去是奇迹</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240496&key=encdeuyadochlaxz&from=pw2">新疆疫情延烧源头可疑 学者忧或来自疫苗试验</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240502&key=encdeuyadochlaxz&from=pw2">施华洛世奇将裁6000人关百店 迎史上最大规模整顿计划</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240503&key=encdeuyadochlaxz&from=pw2">美托儿产业告急 冲击经济</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240490&key=encdeuyadochlaxz&from=pw2">英政论家：中共让全世界生病 西方不能低头</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240475&key=encdeuyadochlaxz&from=pw2">农商银行后勤部门工作环境恶劣 员工集体染肺疾仍被逼加班</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240462&key=encdeuyadochlaxz&from=pw2">橄榄球巨星宣布投票支持川普连任</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240492&key=encdeuyadochlaxz&from=pw2">中国国铁前三季净亏787亿 总负债超5.57万亿</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240491&key=encdeuyadochlaxz&from=pw2">冰球名人波比·奥尔挺川普 刊登整版广告助阵</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240452&key=encdeuyadochlaxz&from=pw2">中国国铁前三季净亏787亿 总负债超5.57万亿</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240526&key=encdeuyadochlaxz&from=pw2">英国确诊突破百万 英相宣布一个月禁足令 学校继续开放</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240464&key=encdeuyadochlaxz&from=pw2">英政论家：中共让全世界生病 西方不能低头</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240485&key=encdeuyadochlaxz&from=pw2">海豹突击队奇袭 在西非救出美国人质</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://jnvoydho.xhuyd.press/?name=c1240466&key=encdeuyadochlaxz&from=pw2">美国海军世界第一 哪个国家能算第二第三</a></td></tr>
 
  </Table>
 
