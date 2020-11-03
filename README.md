@@ -11,43 +11,44 @@
 ## <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png"> 推荐文章专区 （每日更新)
 
 <Table>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240779&key=encdeuyadochlaxz&from=pw2">习近平王岐山放狠话有大事？香港突发3件事 件件重要 曝腾讯大秘密？美智库点穴</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240836&key=encdeuyadochlaxz&from=pw2">1张图看投票：11月3日 除了总统 还要选这些</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240834&key=encdeuyadochlaxz&from=pw2">伊凡卡募款金额超过前总统奥巴马 创下最高单日纪录</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240840&key=encdeuyadochlaxz&from=pw2">贸易战 内循环不足 深圳工厂倒闭潮</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240799&key=encdeuyadochlaxz&from=pw2">拜登最少判15年 石破天惊1天多少重磅消息 民主党极左:民调至少砍半 左派计划占领白宫</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240772&key=encdeuyadochlaxz&from=pw2">中瑞延签“猎狐协议”？日内瓦议会投票反对</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240841&key=encdeuyadochlaxz&from=pw2">大陆服装业陷困境 “双循环”能救市吗？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240842&key=encdeuyadochlaxz&from=pw2">河南男子自行组党建国 被扣“间谍罪”判13年</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240787&key=encdeuyadochlaxz&from=pw2">《石涛聚焦》民调：川普将获326票对212票 大胜拜登</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240645&key=encdeuyadochlaxz&from=pw2">张慧东：中共五中全会为何再提备战？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240798&key=encdeuyadochlaxz&from=pw2">用500万元卖「宣统宝刀」遭批可惜 老人1句话让众人沉默</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240793&key=encdeuyadochlaxz&from=pw2">小学生作文写「我的妈妈」 老师看完这篇笑翻：妈妈会哭</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240835&key=encdeuyadochlaxz&from=pw2">法国再传教堂攻击 里昂教士遭霰弹枪击中胸部</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240804&key=encdeuyadochlaxz&from=pw2">封城还是战争前奏？中共下令研拟家庭紧急物资储备建议清单</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240808&key=encdeuyadochlaxz&from=pw2">中共出台家庭应急储备清单 创造内需？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240830&key=encdeuyadochlaxz&from=pw2">大选最后冲刺 加州集会盛况空前 川普感谢</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240792&key=encdeuyadochlaxz&from=pw2">拜登完了!美媒不约而同集体大变身 拜登罕见一幕视频无言以对 纳瓦罗预言拜登将被消失</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240802&key=encdeuyadochlaxz&from=pw2">十月中以来疫情四起 大陆第二波悄然而至？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240832&key=encdeuyadochlaxz&from=pw2">中共为摆脱困境打双循环牌 专家：漂亮口号</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240813&key=encdeuyadochlaxz&from=pw2">三峡工程建成11年才完成验收 网友：中共领导人集体甩锅</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240838&key=encdeuyadochlaxz&from=pw2">中共五大国有银行净利润和坏账持续恶化</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240805&key=encdeuyadochlaxz&from=pw2">德国穆克兰港进一步走近中国抵抗美国制裁威胁</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240812&key=encdeuyadochlaxz&from=pw2">大陆新流行词「内卷」 恶性竞争导致生活更艰辛</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240833&key=encdeuyadochlaxz&from=pw2">爱琴海强震60死 48小时已过争取时间急搜救</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240811&key=encdeuyadochlaxz&from=pw2">世代财富分配 十年后洗牌</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240788&key=encdeuyadochlaxz&from=pw2">老黑：川普的复仇：“没有当初你对我的羞辱，就不会有我今天为你掘墓”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240816&key=encdeuyadochlaxz&from=pw2">安徽大学美女团干部被当街举报“插足”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240831&key=encdeuyadochlaxz&from=pw2">大纪元：外国留学生抗议中共疫情下封校</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240431&key=encdeuyadochlaxz&from=pw2">【十字路口】解密《川普预言》：美国大选谁胜出？前总统们未来下场？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240814&key=encdeuyadochlaxz&from=pw2">美总统大选前最后周日 川普密西根州造势喊话会赢</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240823&key=encdeuyadochlaxz&from=pw2">拜登明州集会场面尴尬 川普支持者超自己支持者</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240778&key=encdeuyadochlaxz&from=pw2">投书：被截访者“完美接管”的省信访局——难道是鸠占鹊巢？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240839&key=encdeuyadochlaxz&from=pw2">纽约今起汽车后座乘客须系安全带 违者罚钱 驾照扣分</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240818&key=encdeuyadochlaxz&from=pw2">王君：出兵朝鲜不是中国人民的意愿</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240803&key=encdeuyadochlaxz&from=pw2">海南高官落马 曾就读美国智库兰德公司研究生院</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240720&key=encdeuyadochlaxz&from=pw2">唐聿：国产芯片，中共是推手还是杀手？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfwyppox.xhuyd.press/?name=c1240829&key=encdeuyadochlaxz&from=pw2">美情报官：中共影响国会议员 六倍于俄罗斯</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241129&key=encdeuyadochlaxz&from=pw2">7岁童散步发现奇怪石头 一查吓到专家：距今2亿5千万年</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241139&key=encdeuyadochlaxz&from=pw2">鲍彤：中共19届五中全会的两点结论</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241224&key=encdeuyadochlaxz&from=pw2">白宫发言人：川普将在白宫度过大选夜 观看选举结果</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241126&key=encdeuyadochlaxz&from=pw2">川普大胜2家民调不约而同 民主党人和中间派蜂拥挺川 选前决裂 他明挑川普</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241181&key=encdeuyadochlaxz&from=pw2">杨威：中共全会后的信息混乱透真实窘境</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241155&key=encdeuyadochlaxz&from=pw2">美国大选最后冲刺 特朗普再批中共</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241156&key=encdeuyadochlaxz&from=pw2">挑战王岐山惹祸？马云被约谈！四部门约谈蚂蚁集团人员</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241192&key=encdeuyadochlaxz&from=pw2">华为副总裁深圳猝死 曾在伦敦当记者</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241128&key=encdeuyadochlaxz&from=pw2">付钱送房请你住！绝美村庄寻找新移民…推「超豪华福利」</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241143&key=encdeuyadochlaxz&from=pw2">《石涛聚焦》最新：川普将历史性大胜！得票362 PK 拜登176</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241227&key=encdeuyadochlaxz&from=pw2">台湾“战猫”对中共“战狼” 推特外交谁更胜一筹？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241225&key=encdeuyadochlaxz&from=pw2">谭德塞也自我隔离了</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241182&key=encdeuyadochlaxz&from=pw2">【禁闻】记者直击：美国大选倒计时 华人怎么看</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241176&key=encdeuyadochlaxz&from=pw2">2020庚子 人类与共产主义的百年角力到了最终的对决</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241193&key=encdeuyadochlaxz&from=pw2">俄亥俄州长提前预测赢家 大选当晚有望揭晓</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241229&key=encdeuyadochlaxz&from=pw2">美将售台湾4架MQ-9设备侦察设备无人机 金额6亿美元</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241194&key=encdeuyadochlaxz&from=pw2">不想买iPhone 12？两新款手机或是替代选择</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241222&key=encdeuyadochlaxz&from=pw2">中共重点清查官员私藏禁书 淮南副市长一并以贪腐罪名惩处</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241171&key=encdeuyadochlaxz&from=pw2">一分钟看懂：一个公务员一生最起码能挣720万</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241223&key=encdeuyadochlaxz&from=pw2">阿拉伯国家反法国捍卫言论自由 法民众批：为何不反中共迫害新疆穆斯林?</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241127&key=encdeuyadochlaxz&from=pw2">现代版陶渊明？他带狗隐居山洞8年 称心脏病「不药而愈」</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241228&key=encdeuyadochlaxz&from=pw2">美国国务卿强烈谴责港府逮捕8名香港民主派人士</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241243&key=encdeuyadochlaxz&from=pw2">川粉到家门口高喊把拜登关起来 司法部长巴维理与其握手合影</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241241&key=encdeuyadochlaxz&from=pw2">美总统大选多认拜登赢面大 台湾赌盘独押川普胜</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241240&key=encdeuyadochlaxz&from=pw2">&quot;盛世&quot;悲歌！儿子跳海失踪 7天后母亲同地坠海身亡</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241172&key=encdeuyadochlaxz&from=pw2">没戏了！中共取消第7届世界互联网大会 缩小成论坛</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241157&key=encdeuyadochlaxz&from=pw2">中国高铁债务再破世界纪录 亏损近800亿已无力还利息</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241232&key=encdeuyadochlaxz&from=pw2">大选前华尔街动作频 摩根大通增持大陆股份</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241196&key=encdeuyadochlaxz&from=pw2">万圣夜出现罕见蓝月亮 今年最小满月</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241148&key=encdeuyadochlaxz&from=pw2">2020庚子 人类与共产主义的百年角力到了最终的对决(上)</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241242&key=encdeuyadochlaxz&from=pw2">川普与拜登在宾州竞选集会对比</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241166&key=encdeuyadochlaxz&from=pw2">吴侃：《纽约时报》攻击大纪元背后的目的</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241140&key=encdeuyadochlaxz&from=pw2">华为副总裁深圳猝死 曾在伦敦当记者</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241174&key=encdeuyadochlaxz&from=pw2">美政要抨击FBI调查德州川普支持者</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241197&key=encdeuyadochlaxz&from=pw2">未来的太空战争将会怎样打呢？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241226&key=encdeuyadochlaxz&from=pw2">美议员推法案 限制中国软件在美运营</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241145&key=encdeuyadochlaxz&from=pw2">这个精准选举民调显示川普赢面远大于原先推测 为民主党人带来寒意</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://hxspcrwg.xhuyd.press/?name=c1241234&key=encdeuyadochlaxz&from=pw2">【禁闻】今非昔比 中共五大国有银行坏帐恶化</a></td></tr>
 
  </Table>
 
