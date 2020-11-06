@@ -11,40 +11,45 @@
 ## <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png"> 推荐文章专区 （每日更新)
 
 <Table>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241890&key=encdeuyadochlaxz&from=pw2">密西根州翻盘 川普：好奇怪我的领先一个接一个神奇消失</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241906&key=encdeuyadochlaxz&from=pw2">川普稳赢历翻天覆地一夜 民主党阵营大量选举欺诈 推特疯了！狂删川普推文</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241907&key=encdeuyadochlaxz&from=pw2">川普要大赢了？希拉里「深夜突发」败选贴文：别灰心丧志</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241940&key=encdeuyadochlaxz&from=pw2">川普：他们试图偷窃此大选的结果 将诉讼至最高法院</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241926&key=encdeuyadochlaxz&from=pw2">【江峰时刻】关键州作弊证据在手 宪政危机！</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241915&key=encdeuyadochlaxz&from=pw2">川普可能获胜 华盛顿特区反川粉群起暴动 网友：这就是为什么川普会连任</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241911&key=encdeuyadochlaxz&from=pw2">疑似追打马云 中共官方罕见警告双11网购陷阱</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241963&key=encdeuyadochlaxz&from=pw2">六大战场州悬而未定！或需打官司了！</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241939&key=encdeuyadochlaxz&from=pw2">拜登选情告急 胡锡进急了 大骂美国民调机构</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241912&key=encdeuyadochlaxz&from=pw2">【欺世大观】黄继光堵枪眼官媒3版本 军方悄否定</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241956&key=encdeuyadochlaxz&from=pw2">民主党想夺回参议院控制权 愿景恐落空</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241931&key=encdeuyadochlaxz&from=pw2">川普发起诉讼中止和审查密歇根州计票 要求威斯康辛州重新计票</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241949&key=encdeuyadochlaxz&from=pw2">一套房子一欧元 中国人口空心化的楼市警钟</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241905&key=encdeuyadochlaxz&from=pw2">欧盟第一国! 「恭喜川普连任」斯洛维尼亚总理抢先发文：结果很明显了</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241944&key=encdeuyadochlaxz&from=pw2">【禁闻】美国大选 中国官民反应大不同</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241966&key=encdeuyadochlaxz&from=pw2">川普律师：总统有权诉诸所有法律选项</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241904&key=encdeuyadochlaxz&from=pw2">川普31票入袋有望！乔治亚、北卡州得票率逾50%领先</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241913&key=encdeuyadochlaxz&from=pw2">决战摇摆州124票！美国总统大选「6大关键选区」一次看</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241927&key=encdeuyadochlaxz&from=pw2">《石涛聚焦》美国大选特辑 H：投票统计图被鬼操控！</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241962&key=encdeuyadochlaxz&from=pw2">调查报道成针对目标 浸大吕秉权：政府收紧查册 为记者设陷阱</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241953&key=encdeuyadochlaxz&from=pw2">美众院选举 民主党正在失去一些重要席位</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241943&key=encdeuyadochlaxz&from=pw2">华为又推新手机 网友：山寨iPhone 12</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241938&key=encdeuyadochlaxz&from=pw2">喀什感染者还在陆续发病 再暴增118例 网曝疫苗后效应</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241924&key=encdeuyadochlaxz&from=pw2">【微视频】王岐山复活后蚂蚁上市被叫停！</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241959&key=encdeuyadochlaxz&from=pw2">蚂蚁中港上市突喊停 业界分析背后恐不简单</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241896&key=encdeuyadochlaxz&from=pw2">常忍：中共不光彩的“第一”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241968&key=encdeuyadochlaxz&from=pw2">【禁闻】中共权斗火花溅？蚂蚁集团暂缓沪港上市</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241914&key=encdeuyadochlaxz&from=pw2">拜登当选若失智由贺锦丽接任美国总统?吕秀莲:台湾会面临很大危机</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241920&key=encdeuyadochlaxz&from=pw2">中国网民“翻墙”围观美国选举 关切未来政策是否持续对中共施压</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241935&key=encdeuyadochlaxz&from=pw2">昆明国际商贸城商户罢市 抵制租金上涨 2千保安出动</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241903&key=encdeuyadochlaxz&from=pw2">川普胜选被偷走？ 79天混乱动荡期开始？ 民主党政变能否成功？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241921&key=encdeuyadochlaxz&from=pw2">华尔街日报：中国政府的“双循环”战略是一个高风险押注</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241923&key=encdeuyadochlaxz&from=pw2">美大选前白宫出书 美国对华政策何去何从</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://alqvvjyz.xhuyd.press/?name=c1241922&key=encdeuyadochlaxz&from=pw2">自称前中共间谍的维吾尔族人在土耳其被不明袭击者枪击</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242256&key=encdeuyadochlaxz&from=pw2">川普和共和党大反击来了 美中将曝民主党FBI用软件作弊 美媒曝密州邮局集体造假</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242265&key=encdeuyadochlaxz&from=pw2">《石涛聚焦》美国选举政变：刚刚发生！川普宾州取得重大法律胜利</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242325&key=encdeuyadochlaxz&from=pw2">川普团队费城发布会：我们将赢得选举</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242323&key=encdeuyadochlaxz&from=pw2">密西根州监票员爆料：实查7千选票 却报出5万张</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242303&key=encdeuyadochlaxz&from=pw2">川普法律战首胜！宾州最高法院批准计票暂停 让选举观察员监察计票</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242266&key=encdeuyadochlaxz&from=pw2">【江峰时刻】解读美国大选最新战况！</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242328&key=encdeuyadochlaxz&from=pw2">警报四起 疫情冬季高潮到来？北京宣布紧急备战</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242318&key=encdeuyadochlaxz&from=pw2">邮寄选票都选拜登？ 邮局工作人员举报舞弊</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242322&key=encdeuyadochlaxz&from=pw2">大纪元：内部文件解密 中共对美方“和平队”成员实施限制</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242331&key=encdeuyadochlaxz&from=pw2">川普誓言发起「法律挑战」推文宣布：拜登声称拿下的州 我们都要告</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242330&key=encdeuyadochlaxz&from=pw2">调查邮寄选票诈欺 外媒曝美司法部允许武装联邦特工进入投票站</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242302&key=encdeuyadochlaxz&from=pw2">中共高官对美国大选公开表态 “希望美国新一届政府不冲突不对抗”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242258&key=encdeuyadochlaxz&from=pw2">谢田：美国大选僵局 神在考验我们的信心</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242284&key=encdeuyadochlaxz&from=pw2">死人都收到选票！川普阵营对内华达州提起诉讼</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242277&key=encdeuyadochlaxz&from=pw2">耳边风：马云花旗能通天：习大大能不害怕？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242288&key=encdeuyadochlaxz&from=pw2">钟原：中共高层应对国际孤立仍无策略</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242301&key=encdeuyadochlaxz&from=pw2">美国大选战况胶着 各国反应不一</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242320&key=encdeuyadochlaxz&from=pw2">大赚变亏蚀 蚂蚁股民要求退款止息</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242285&key=encdeuyadochlaxz&from=pw2">民主党整体得票不如预期 新国会预计将维持分裂状态</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242327&key=encdeuyadochlaxz&from=pw2">蚂蚁上市突喊停 业界分析背后原因</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242321&key=encdeuyadochlaxz&from=pw2">纳瓦罗：美媒成中共“有用白痴” 民主党和中共形成邪恶联盟</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242280&key=encdeuyadochlaxz&from=pw2">清竹：美国在天灭中共中应担当什么角色？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242271&key=encdeuyadochlaxz&from=pw2">美最高法院出手了 华人发现威州突变蓝谜底 10种作弊信号蓝州有9个</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242281&key=encdeuyadochlaxz&from=pw2">中国宣布最严厉防疫措施 禁止多国人员入境</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242297&key=encdeuyadochlaxz&from=pw2">官方通告警惕“双11”网购陷阱 马云真悬了？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242291&key=encdeuyadochlaxz&from=pw2">习近平追杀马云！？阻蚂蚁金服IPO上市 专家曝关键原因</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242292&key=encdeuyadochlaxz&from=pw2">老农夫垦荒挖到千年人参 村长说一句话让他泪崩</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242319&key=encdeuyadochlaxz&from=pw2">推特脸书审查大选言论 摇摆州开票数据遭屏蔽</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242259&key=encdeuyadochlaxz&from=pw2">蚂蚁继续被官方穷追猛打 旗下王牌“花呗”遭当局点名批评</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242316&key=encdeuyadochlaxz&from=pw2">想吃霸王餐！她见帐单「秒钻天花板」逃跑 碰一声悲剧了</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242317&key=encdeuyadochlaxz&from=pw2">亚利桑那差距缩小 民调专家:宣布拜登胜利尚早</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242307&key=encdeuyadochlaxz&from=pw2">6 620人呈阳性 中国爆发大规模布鲁氏菌感染事件</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242304&key=encdeuyadochlaxz&from=pw2">7岁男童遭狠父虐待 烟头烫手 面临截肢</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242273&key=encdeuyadochlaxz&from=pw2">“马已经服”后 民营企业家还敢创新和冒头吗？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242299&key=encdeuyadochlaxz&from=pw2">五中全会后习加码固权 官员政绩考核首要维护习核心</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242308&key=encdeuyadochlaxz&from=pw2">画面太残忍！阿塞拜疆虐杀战俘现场视频曝光</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242309&key=encdeuyadochlaxz&from=pw2">美民主党众院选情不如预期 传有意换下议长裴洛西</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242276&key=encdeuyadochlaxz&from=pw2">新证据显示 大华科技是新疆天网的重要推手</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://edtfpoiq.xhuyd.press/?name=c1242314&key=encdeuyadochlaxz&from=pw2">川普：不会计算大选日后才到达的选票</a></td></tr>
 
  </Table>
 
