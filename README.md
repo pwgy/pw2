@@ -12,42 +12,40 @@
 ## <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png"> 推荐文章专区 （每日更新)
 
 <Table>
-
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1242963&key=encdeuyadochlaxz&from=pw2">川普：我以很大优势赢得了总统大选 将召开大型记者会</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1242993&key=encdeuyadochlaxz&from=pw2">川普大胜被偷谜底终曝光 原来手眼通天到她他他 习近平也卷入？必须的？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1242976&key=encdeuyadochlaxz&from=pw2">【秦鹏观察】重磅作弊证据曝光 拜登遭重挫胜选演讲被迫推迟</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1242997&key=encdeuyadochlaxz&from=pw2">川普：拜登急于假扮胜选赢家 因怕事实被揭露 谁胜选非由媒体决定</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1243007&key=encdeuyadochlaxz&from=pw2">【 新闻嘲点】川普已被逼到墙角 他的对手到底是谁</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1243000&key=encdeuyadochlaxz&from=pw2">【欺世大观】邱少云死得很争议</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1242978&key=encdeuyadochlaxz&from=pw2">惊爆 “密歇根州实际上川普大胜  摇摆州个个都是密歇根州” 大主教预言最后结局</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1242991&key=encdeuyadochlaxz&from=pw2">程晓农：密歇根州登记选民比合法选民多出65万</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1242979&key=encdeuyadochlaxz&from=pw2">美大选邮寄选票惊见「顺丰快递」！业者证实：从中国寄出的</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1242988&key=encdeuyadochlaxz&from=pw2">杭州富二代渣男娶校花兄弟1句「怒砍60刀杀妻」入狱又伤人</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1242956&key=encdeuyadochlaxz&from=pw2">【拍案惊奇】两州一夜又变蓝 47县现作票软件</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1243009&key=encdeuyadochlaxz&from=pw2">美38位共和党议员联署 促司法部长调查大选欺诈</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1242996&key=encdeuyadochlaxz&from=pw2">英国「最小豪宅」售32万美元 风景优美 内部别有洞天</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1243002&key=encdeuyadochlaxz&from=pw2">钟原：李克强再称坚持政府过紧日子</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1242995&key=encdeuyadochlaxz&from=pw2">阅听人不是瞎子也不笨 民调：近半独立选民认为媒体在替拜登助选</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1242994&key=encdeuyadochlaxz&from=pw2">中共被控在海外骚扰“红通”人员 在国内挟持其家属为人质</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1242983&key=encdeuyadochlaxz&from=pw2">程晓农：可疑选票决定总统大选结果？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1242977&key=encdeuyadochlaxz&from=pw2">老黑：川普为我们而战 我们也要为川普而战</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1242985&key=encdeuyadochlaxz&from=pw2">“十四五”规划中国将落实延迟退休 如何保证公平公正？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1242990&key=encdeuyadochlaxz&from=pw2">中共当局再警告马云 别玩“钱生钱游戏”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1242984&key=encdeuyadochlaxz&from=pw2">媒体说的不算！川普律师团：选举结果是法庭决定 离选举结束还早！</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1243001&key=encdeuyadochlaxz&from=pw2">袁斌：“水稻亩产130,434.14斤”的惊天谎言</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1242992&key=encdeuyadochlaxz&from=pw2">脸书被控投巨资影响选举被告了 扎克伯格支付法官“小费”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1242980&key=encdeuyadochlaxz&from=pw2">黑洞是废品转化工厂 宇宙或是一个巨大智慧体</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1243008&key=encdeuyadochlaxz&from=pw2">三家粮食企业通告涨价遭查 网友：中共一辟谣就要快屯粮</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1242986&key=encdeuyadochlaxz&from=pw2">美佛州传枪响！枪手对川普支持者开枪 2女受伤</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1243005&key=encdeuyadochlaxz&from=pw2">新疆一大学封校半年 学生崩溃喊跳楼自杀</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1243006&key=encdeuyadochlaxz&from=pw2">重庆民主人士力挺川普：他最终会胜出</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1242975&key=encdeuyadochlaxz&from=pw2">钟原：李克强再称坚持政府过紧日子</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1242890&key=encdeuyadochlaxz&from=pw2">梁文韬：美国民主怎么了？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1242974&key=encdeuyadochlaxz&from=pw2">世界各国的主力战舰 巡洋舰正淡出江湖</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1242987&key=encdeuyadochlaxz&from=pw2">香港“大陆化”难免 强拧的瓜会甜吗？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1242989&key=encdeuyadochlaxz&from=pw2">大陆房产消费纠纷四起 多地业主集体维权</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://cfsjechv.xhuyd.press/?name=c1243010&key=encdeuyadochlaxz&from=pw2">【微历史】苏联解体 戈氏及叶利钦也无奈接受</a></td></tr>
-
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243307&key=encdeuyadochlaxz&from=pw2">继大纪元之后 美又一媒体不承认拜登当选</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243301&key=encdeuyadochlaxz&from=pw2">拜登未算正式当选！要等这个美国政府机构发声明…</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243297&key=encdeuyadochlaxz&from=pw2">钟原：习近平仍未祝贺拜登 恐知内情？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243294&key=encdeuyadochlaxz&from=pw2">川普24小时内连发9则推文 支持者力挺：你还是我们的总统</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243309&key=encdeuyadochlaxz&from=pw2">好莱坞名流拒拜登胜选 吁扣除非法选票</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243267&key=encdeuyadochlaxz&from=pw2">川普共和党强硬反击出手 选举私有化扎克伯格被告 美国能幸存? 民要战斗到底</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243293&key=encdeuyadochlaxz&from=pw2">拜登当选后 这些国家反应冷淡…</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243286&key=encdeuyadochlaxz&from=pw2">川普曝拜登和媒体怕什么？ 了不起！实名吹哨人冒险救国 多国领导人急表态 网不屑</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243319&key=encdeuyadochlaxz&from=pw2">陕西狼父！多次强姦女儿 女婿面前逞兽行</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243296&key=encdeuyadochlaxz&from=pw2">王友群：马云“唱反调”习近平“掀桌子”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243318&key=encdeuyadochlaxz&from=pw2">拜登得意忘形又乱说：美国2.3亿人死于中共病毒</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243300&key=encdeuyadochlaxz&from=pw2">南京高铁“出轨”“撞”上了公交车</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243285&key=encdeuyadochlaxz&from=pw2">42岁妈告诉18岁儿「帮你生妹妹」儿子的反应却让她心寒</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243277&key=encdeuyadochlaxz&from=pw2">严真点评&#038;外交部大实话：大选舞弊曝光 川普提诉</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243218&key=encdeuyadochlaxz&from=pw2">田云：正邪激战 美国大选舞弊的深层原因</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243290&key=encdeuyadochlaxz&from=pw2">砸千万买房 她一进屋内见「6支不明柱子」百万元恐飞了</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243305&key=encdeuyadochlaxz&from=pw2">川普控大选舞弊 共和党议员吁奋战下去别认败选</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243299&key=encdeuyadochlaxz&from=pw2">不寻常！拜登自称胜选 中共静悄悄 党媒发推迅速删文</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243283&key=encdeuyadochlaxz&from=pw2">周晓辉：真假主席说舞弊 北京用美媒假新闻骗人</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243289&key=encdeuyadochlaxz&from=pw2">美国选举舞弊逐渐曝光 川普支持者提出六大疑点</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243317&key=encdeuyadochlaxz&from=pw2">【禁闻】动了中共金融“蛋糕”? 蚂蚁再遭打击</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243282&key=encdeuyadochlaxz&from=pw2">钟原：习近平仍未祝贺拜登 恐知内情？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243308&key=encdeuyadochlaxz&from=pw2">蚂蚁上市喊停 阿里巴巴或出售部分资产套现</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243304&key=encdeuyadochlaxz&from=pw2">天津现本土疫情仅确诊1例？马上进入战时状态</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243298&key=encdeuyadochlaxz&from=pw2">马云到底得罪谁？传刘鹤下令全面审查蚂蚁业务</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243292&key=encdeuyadochlaxz&from=pw2">不让观察员进开票所 联邦选委会主席：我确实相信有舞弊</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243291&key=encdeuyadochlaxz&from=pw2">夫妻28年生14个儿子！喜迎女婴哥哥泪：本来不抱希望了</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243202&key=encdeuyadochlaxz&from=pw2">王赫：反川普联盟的失败或难避免</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243320&key=encdeuyadochlaxz&from=pw2">河北官场又地震 8天3名厅官相继落马</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243306&key=encdeuyadochlaxz&from=pw2">恒大回A股上市宣布告吹 梦碎</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243276&key=encdeuyadochlaxz&from=pw2">【大陆新闻解毒 】时事小品：党媒报导怎样出炉的</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243288&key=encdeuyadochlaxz&from=pw2">《共产主义黑皮书》：尼加拉瓜极权主义的失败</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243280&key=encdeuyadochlaxz&from=pw2">川普：大型城市机器腐败 选票认证系统有长期历史问题 这是一场被偷的选举</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://khwobigb.xhuyd.press/?name=c1243316&key=encdeuyadochlaxz&from=pw2">【名家专栏】政府机构腐败 酿空前选举危机</a></td></tr>
 
  </Table>
 
