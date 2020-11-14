@@ -12,39 +12,48 @@
 ## <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png"> 推荐文章专区 （每日更新)
 
 <Table>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244745&key=encdeuyadochlaxz&from=pw2">爆炸!选票机内部人起义 川普会轻易赢得这两州 蓬佩奥警告拜登别违法</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244750&key=encdeuyadochlaxz&from=pw2">好消息！川普总统：Dominion试图改变大举 但被抓包 【阿波罗网编译】</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244789&key=encdeuyadochlaxz&from=pw2">伊万卡被拜登女儿取代？左媒造势落空</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244792&key=encdeuyadochlaxz&from=pw2">西弗吉尼亚州长发声 拒绝承认拜登“当选”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244744&key=encdeuyadochlaxz&from=pw2">【拍案惊奇】拜登上台 背后势力浮出水面 讨价还价</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244760&key=encdeuyadochlaxz&from=pw2">周晓辉：中共面临重大政治挑战 再闻美灭共强音</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244798&key=encdeuyadochlaxz&from=pw2">【睿眼看世界】任正非：中国芯片制造世界第一 怎么好意思说出口？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244770&key=encdeuyadochlaxz&from=pw2">美国人站出来！一万一千人宣誓为选举作弊作证 康州一个选区票没算 加上后共和党翻盘</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244804&key=encdeuyadochlaxz&from=pw2">川普：选举投票机删除了270万张投给川普的选票</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244749&key=encdeuyadochlaxz&from=pw2">福克斯新闻挺拜登胜选收视率暴跌 不得不雇用危机管理团队【阿波罗网编译】</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244809&key=encdeuyadochlaxz&from=pw2">名家专栏：阻恶势力 终止科技巨头地位的方法</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244793&key=encdeuyadochlaxz&from=pw2">国际征信巨头益博睿宣布退出大陆市场</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244791&key=encdeuyadochlaxz&from=pw2">中共将染疫者嫁祸德国猪肘 遭德国反驳</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244805&key=encdeuyadochlaxz&from=pw2">川普竞选顾问：不彻查舞弊 选举将被永远改变</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244807&key=encdeuyadochlaxz&from=pw2">美7成共和党选民忧邮寄选票舞弊 计票信心掉2成</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244788&key=encdeuyadochlaxz&from=pw2">实现机翼和尾翼联动 新型无人机灵活如苍鹰</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244754&key=encdeuyadochlaxz&from=pw2">清竹：美国大选，国民警卫队会介入吗？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244743&key=encdeuyadochlaxz&from=pw2">太淡定了 湖南87岁老妇坠河后抱臂漂浮获救</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244768&key=encdeuyadochlaxz&from=pw2">“双十一”天猫京东销售额创新高 畸形现象难掩实体经济疲态</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244790&key=encdeuyadochlaxz&from=pw2">大搞权钱权色交易 吉林高院副院长被双开</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244808&key=encdeuyadochlaxz&from=pw2">国会议员：邮寄选票混乱 正中民主党下怀</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244796&key=encdeuyadochlaxz&from=pw2">吐为快：墙国梦碎</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244802&key=encdeuyadochlaxz&from=pw2">爆广州商家沿街倒闭 急坏小粉红“出征”闹轰</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244806&key=encdeuyadochlaxz&from=pw2">邮寄选票拒绝率仅0.03% 美媒列大选4大疑点</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244772&key=encdeuyadochlaxz&from=pw2">当日本变移工首选──越南一条街 预警台湾抢工危机</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244761&key=encdeuyadochlaxz&from=pw2">常忍：世卫组织沦为中共附庸</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244762&key=encdeuyadochlaxz&from=pw2">一位妙龄女子的曲折人生</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244787&key=encdeuyadochlaxz&from=pw2">银河系神秘伽马射线源自罕见黑寡妇星</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244776&key=encdeuyadochlaxz&from=pw2">谢田：川普闲庭信步 信心来自高科技？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244786&key=encdeuyadochlaxz&from=pw2">紫光等国企债务连续爆雷 多只中资美元债遭抛售</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244803&key=encdeuyadochlaxz&from=pw2">捷克访台重创中共 外宣组织抹黑结果泄底了</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244769&key=encdeuyadochlaxz&from=pw2">中共官员称四成外贸企业已开做“出口转内销”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://bkaatvkc.xhuyd.press/?name=c1244765&key=encdeuyadochlaxz&from=pw2">美国需消灭中共！中共最高官员示警：否则人类将有巨大灾难</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245018&key=encdeuyadochlaxz&from=pw2">凌晓辉：美国大选舞弊 中共是始作俑者</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245117&key=encdeuyadochlaxz&from=pw2">杨威：中共外交部忽祝贺拜登 风暴来临？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245109&key=encdeuyadochlaxz&from=pw2">周晓辉：川普启动雷霆之击 北京忧心之事将至</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245137&key=encdeuyadochlaxz&from=pw2">巴基斯坦女子高速上被轮奸 办案警官语出惊人：活该</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245100&key=encdeuyadochlaxz&from=pw2">老黑：蓬佩奥发言浓浓火药味剑指中共 是想要发动战争？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245140&key=encdeuyadochlaxz&from=pw2">本季缺口3000万吨 中国成全球最大粮食进口国</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245186&key=encdeuyadochlaxz&from=pw2">【慧月瞰今昔】美国大选接连反转 川普绝地反击号角已吹响</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245155&key=encdeuyadochlaxz&from=pw2">民主党内部现分裂 温和派开始反对“疯狂社会主义议程”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245122&key=encdeuyadochlaxz&from=pw2">再轰计票系统！川普：有问题的州应该马上列入川普胜选州 拜登输很多</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245099&key=encdeuyadochlaxz&from=pw2">【新闻大家谈】中共祝贺拜登 促川普祭王牌？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245123&key=encdeuyadochlaxz&from=pw2">美国发动制裁！中资企业遭“特”袭 3大电讯股重灾</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245119&key=encdeuyadochlaxz&from=pw2">习近平操控扶拜登上位？ 拜登奥巴马都将入狱？ 美8成地区用问题投票机</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245214&key=encdeuyadochlaxz&from=pw2">川普宣布国家进入紧急状态 应对中共威胁</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245180&key=encdeuyadochlaxz&from=pw2">罗斯认输 共和党玛丽奥当选纽约州国会众议员</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245138&key=encdeuyadochlaxz&from=pw2">尴尬了！中共外交部首称祝贺拜登 但拒认其“当选总统”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245110&key=encdeuyadochlaxz&from=pw2">【拍案惊奇】中共暗助拜登干扰美国选举？变相开战！</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245154&key=encdeuyadochlaxz&from=pw2">网民曝北京信访局万人上访 打卡成网红语言</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245218&key=encdeuyadochlaxz&from=pw2">周晓辉：川普启动雷霆之击 北京忧心之事将至</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245108&key=encdeuyadochlaxz&from=pw2">分析：川普强硬反共 才扭转国际局势</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245141&key=encdeuyadochlaxz&from=pw2">远见快评：民主党大规模软件作弊 川普攻防战</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245159&key=encdeuyadochlaxz&from=pw2">前CIA官员：中共用linkedin猎人头 蒐集科技情报</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245164&key=encdeuyadochlaxz&from=pw2">疫情升级 湖北黄冈罗田县宣布进入战时状态</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245090&key=encdeuyadochlaxz&from=pw2">黄翔：中共是中共 中国是中国（之一）</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245199&key=encdeuyadochlaxz&from=pw2">有信心赢得大选 川普：永远不要押我输</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245176&key=encdeuyadochlaxz&from=pw2">千亿级国企爆雷：账上400多亿现金还不上10亿债券</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245121&key=encdeuyadochlaxz&from=pw2">习近平叫停蚂蚁上市 是担心富豪不会与党保持一致？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245184&key=encdeuyadochlaxz&from=pw2">河南率先向宅基地收费 5亿农民将被割韭菜？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245143&key=encdeuyadochlaxz&from=pw2">【禁闻】亨特‧拜登哪去了？外界吁彻查“电邮门”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245157&key=encdeuyadochlaxz&from=pw2">著名媒体人卡尔森：拜登靠高科技大公司和左媒捧着“上位” 将“论功行赏”？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245179&key=encdeuyadochlaxz&from=pw2">孙大午：一个有思想的农民企业家</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245195&key=encdeuyadochlaxz&from=pw2">威震东北 专杀恶警的“呼兰大侠”下落成迷</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245144&key=encdeuyadochlaxz&from=pw2">【禁闻】争议计票系统 恐中共借机操控美国大选</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245158&key=encdeuyadochlaxz&from=pw2">加媒专栏作家：应立法阻止中共威胁居加华裔</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245127&key=encdeuyadochlaxz&from=pw2">王赫：中共为何突然祝贺拜登？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245139&key=encdeuyadochlaxz&from=pw2">太淡定了 湖南87岁老妇坠河后抱臂漂浮获救</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245145&key=encdeuyadochlaxz&from=pw2">印媒：中印3阶段撤军 中共同意撤出班公湖南岸</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245202&key=encdeuyadochlaxz&from=pw2">拜登再爆丑闻：其过渡团队高级助理曾为亨特注资300万美元</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245166&key=encdeuyadochlaxz&from=pw2">您能得救 我的心願才會了</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245153&key=encdeuyadochlaxz&from=pw2">参加“千人计划”的免疫学专家在法庭认罪 承认向美国政府撒谎</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245118&key=encdeuyadochlaxz&from=pw2">中共外交部口风再变 向拜登“谨慎道贺”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245114&key=encdeuyadochlaxz&from=pw2">张展面临5年刑期威胁 武汉家属驳当局指控</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gbrzinti.xhuyd.press/?name=c1245136&key=encdeuyadochlaxz&from=pw2">川普下令禁国民持股解放军操盘企业 专家：金融制裁或陆续有来</a></td></tr>
 
  </Table>
 
