@@ -12,46 +12,39 @@
 ## <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png"> 推荐文章专区 （每日更新)
 
 <Table>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246074&key=encdeuyadochlaxz&from=pw2">知情人爆大庆石化公司凶杀案内情</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246085&key=encdeuyadochlaxz&from=pw2">川普大手笔证明选举违宪 投票机公司是他的人运作 左媒真狠!挺川人数压百倍</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246089&key=encdeuyadochlaxz&from=pw2">邢天行：洗劫孙大午的不是习近平而是它</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246004&key=encdeuyadochlaxz&from=pw2">【大选更新11.16】彭斯：川普统率了疫苗开发</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246099&key=encdeuyadochlaxz&from=pw2">川普胜18个风向标县碾压拜登 投票机发明者忘形狂笑变大哭 拜登中共勾兑江系曝闭门会议</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246126&key=encdeuyadochlaxz&from=pw2">内华达州绿卡持有者突变登记“活跃”选民</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246123&key=encdeuyadochlaxz&from=pw2">广西柳州7名残疾老人结伴跳江引愤慨</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246104&key=encdeuyadochlaxz&from=pw2">【睿眼看世界】越有钱越危险 孙大午只是个开始 共产模式正加速到来</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246142&key=encdeuyadochlaxz&from=pw2">外星生命早已定居地球？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246117&key=encdeuyadochlaxz&from=pw2">西安病了么？为什么那么多人要进行核酸检测？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246145&key=encdeuyadochlaxz&from=pw2">川普宾州大撤诉？华邮再报假新闻被打脸</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246073&key=encdeuyadochlaxz&from=pw2">围观者众 61岁英驻渝总领事跳河救人引热议</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246124&key=encdeuyadochlaxz&from=pw2">Moderna疫苗95%有效 川普：我任内伟大成果</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246135&key=encdeuyadochlaxz&from=pw2">乾元：一个社会的崩溃真的是从媒体开始的</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246105&key=encdeuyadochlaxz&from=pw2">美军二战后首次珍珠港大兴土木 星条旗报：对抗中共</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246096&key=encdeuyadochlaxz&from=pw2">太会赚！伊凡卡身价2.89亿英镑 是梅兰妮亚的7.4倍</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246084&key=encdeuyadochlaxz&from=pw2">温哥华华人站出来：支持正义 支持川普</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246103&key=encdeuyadochlaxz&from=pw2">吉林重庆均再现“路倒”事件 民众麻木(视频)</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246113&key=encdeuyadochlaxz&from=pw2">安徽女护士离奇死亡 生前曝遭副院长强暴 曾堕胎</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246095&key=encdeuyadochlaxz&from=pw2">《石涛聚焦》朱利安尼：投票系统软件公司 是委内瑞拉独裁者马杜罗拥有</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246116&key=encdeuyadochlaxz&from=pw2">成都锦江宾馆爆疫情连夜封闭 病人已住14天</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246106&key=encdeuyadochlaxz&from=pw2">女大学生重庆景区落水 61岁英国总领事跳水救人</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246121&key=encdeuyadochlaxz&from=pw2">密歇根集会民众：反对主流媒体宣传共产主义</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246097&key=encdeuyadochlaxz&from=pw2">亚洲疫情卷土重来 抗疫处于关键十字路口</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246098&key=encdeuyadochlaxz&from=pw2">北京冬奥如同纳粹柏林奥运 澳洲议员：国际应杯葛</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1245917&key=encdeuyadochlaxz&from=pw2">未名：川普到底面对着怎样的挑战？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246150&key=encdeuyadochlaxz&from=pw2">脸书帐号突被封 哈萨克人权团体4年资料库化为乌有</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246075&key=encdeuyadochlaxz&from=pw2">吴惠林：如何妥善因应后疫情时代？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246146&key=encdeuyadochlaxz&from=pw2">多伦多法轮功解体中共大游行 民众热烈响应</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246107&key=encdeuyadochlaxz&from=pw2">爆危机！BMW合资伙伴华晨汽车 证实收到破产重整通知书</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246119&key=encdeuyadochlaxz&from=pw2">华府挺川普 航空运输公司负责人质疑Dominion选举系统</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246100&key=encdeuyadochlaxz&from=pw2">结疫情再传佳音！美国莫德纳武肺疫苗防护力近95%</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246149&key=encdeuyadochlaxz&from=pw2">中国10月外汇占款连跌9个月</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246143&key=encdeuyadochlaxz&from=pw2">Dominion IT员工披露拜登选票如何会暴涨</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246108&key=encdeuyadochlaxz&from=pw2">加保守党领袖再向特鲁多施压 要求30日内禁止华为5G准入</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246151&key=encdeuyadochlaxz&from=pw2">写于马格尼茨基忌日</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246102&key=encdeuyadochlaxz&from=pw2">红领巾再夺一命 四川官方证实小学生被勒死</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246101&key=encdeuyadochlaxz&from=pw2">遇袭蚂蚁大股东钱峰雷 悬赏1千万港币缉凶</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qktosuzo.xhuyd.press/?name=c1246112&key=encdeuyadochlaxz&from=pw2">庄晓斌：美国大选究竟谁赢了</a></td></tr>
-
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246428&key=encdeuyadochlaxz&from=pw2">大新闻 形势逆转华尔街大佬挺川 揭作弊黑帮老大和拜登翻脸？ 美大律师放言拜登将服长刑</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246479&key=encdeuyadochlaxz&from=pw2">网曝兰州盐场堡近千布病患者堵路抗议（视频）</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246476&key=encdeuyadochlaxz&from=pw2">美国发现一种人传人罕见病毒 暂时无特定药物</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246461&key=encdeuyadochlaxz&from=pw2">惊！拜登竟表态「台湾是中国一部分」 专家曝台美辛酸内幕</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246496&key=encdeuyadochlaxz&from=pw2">王沪宁高级黑？习近平一句话夹带“江泽民”3字</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246475&key=encdeuyadochlaxz&from=pw2">媒体披露：美国务院将发布“凯南长电报”式对华方针</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246464&key=encdeuyadochlaxz&from=pw2">王沪宁捣鬼？党媒刊习近平讲话暗藏“江泽民”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246500&key=encdeuyadochlaxz&from=pw2">经济学家：蚂蚁集团不可能在中国上市了</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246443&key=encdeuyadochlaxz&from=pw2">【江峰时刻】高院一锤定音难？乔治亚重开票再现弊端 川普的难和出路</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246447&key=encdeuyadochlaxz&from=pw2">天 数百万人出来指证作弊 民主党溃败？大佬发话 此州顶不住!CIA局长...</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246495&key=encdeuyadochlaxz&from=pw2">选后反而民气上升 川普满意度达7个月以来新高</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246516&key=encdeuyadochlaxz&from=pw2">王岐山罕见深夜露面 疑向拜登阵营喊话</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246497&key=encdeuyadochlaxz&from=pw2">惨！河南男子在父亲坟前祭扫时用锄头杀害亲姐</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246499&key=encdeuyadochlaxz&from=pw2">江西井冈山化工厂剧烈爆炸 数百米外居民窗户被震碎</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246459&key=encdeuyadochlaxz&from=pw2">川普：欧洲遭中共病毒打趴 假新闻媒体都不报</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246425&key=encdeuyadochlaxz&from=pw2">《石涛聚焦》 FOX著名主持LOU：感谢上帝 让我们有川普这样好的总统</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246498&key=encdeuyadochlaxz&from=pw2">疫情压力巨大？网曝湖北潜江兴建隔离病房</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246441&key=encdeuyadochlaxz&from=pw2">王岐山吁反单边主义 专家：凸显中共困境</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246460&key=encdeuyadochlaxz&from=pw2">川普律师爆：Dominion是中资公司 其软件因舞弊问题被美国选举禁用</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246445&key=encdeuyadochlaxz&from=pw2">【杰森视角】川普司法胜利正在进行时？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246480&key=encdeuyadochlaxz&from=pw2">【禁闻】专访金秀红：投票系统安全存疑</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246457&key=encdeuyadochlaxz&from=pw2">张菁：大主教三封公开信 在传递神的启示</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246474&key=encdeuyadochlaxz&from=pw2">Lancet:黑人和亚裔感染中共病毒的可能性是白人两倍</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246422&key=encdeuyadochlaxz&from=pw2">川普派亲信进驻商务部 推对中共强硬政策</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246518&key=encdeuyadochlaxz&from=pw2">左媒谎言触动民主党人脱离 转向支持川普</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246473&key=encdeuyadochlaxz&from=pw2">习近平智囊郑永年被控性骚扰 新加坡国立大学予以书面警告处分</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246470&key=encdeuyadochlaxz&from=pw2">台湾民间警告 数位身份证恐沦为中共渗透破口</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246451&key=encdeuyadochlaxz&from=pw2">中日最新联合民调：近9成日本人对中国印象不好</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246517&key=encdeuyadochlaxz&from=pw2">美军舰击落洲际弹道导弹 首试成功</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246488&key=encdeuyadochlaxz&from=pw2">继孙大午之后又一中国民营企业家落马</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246440&key=encdeuyadochlaxz&from=pw2">湖北高院副院长张忠波自杀 曾参与迫害法轮功</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246519&key=encdeuyadochlaxz&from=pw2">经济学家警告 更多的封锁可能重创经济</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://enlezfab.xhuyd.press/?name=c1246448&key=encdeuyadochlaxz&from=pw2">印度为何不加入RCEP？官员直言：中共是侵略者</a></td></tr>
 
  </Table>
 
