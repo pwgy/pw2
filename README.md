@@ -1,7 +1,8 @@
 ## 收藏本页面短网址： https://git.io/pw222
 ## 最新新闻及疫情时刻更新，欢迎广传，只有真相能自救! 
 
-
+# <img src="https://github.com/pwgy/pic/blob/master/T101-1.JPG"> 
+# 微信掃碼進群
 
 ## <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png">  自救专区
 
