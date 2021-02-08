@@ -34,7 +34,7 @@
 <tr><td colspan="2" align="left"><a href="https://uynaftvo.xhuyd.press/?name=c1304133&key=encdeuyadochlaxz&from=pw2">旧金山两华童遭绑架 引爆社媒热议 全城大搜捕后安全归来</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://uynaftvo.xhuyd.press/?name=c1304118&key=encdeuyadochlaxz&from=pw2">许志永女友李翘楚再被拘留 被指颠覆国家政权</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://uynaftvo.xhuyd.press/?name=c1304101&key=encdeuyadochlaxz&from=pw2">【拍案惊奇】《时代》爆白宫易主真相及“总策划”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://uynaftvo.xhuyd.press/?name=c1304141&key=encdeuyadochlaxz&from=pw2">一线采访：临近过年 农民工扬州公开讨薪</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xcvkmzvnt.azureedge.net/?name=c1304101&key=elmfdthqungpiwus&from=gdh&tag=onwzmnwaydpc">一线采访：临近过年 农民工扬州公开讨薪</a></td></tr>
 
  </Table>
 
