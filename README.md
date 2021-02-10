@@ -36,7 +36,7 @@
 <tr><td colspan="2" align="left"><a href="https://ucrjuhgr.xhuyd.press/?name=c1304841&key=encdeuyadochlaxz&from=pw2">世卫称病毒并非武汉实验室泄露 蓬佩奥回应</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://ucrjuhgr.xhuyd.press/?name=c1304828&key=encdeuyadochlaxz&from=pw2">巨变破美国记录：拜登行政令治国 头3周发布52项 打破承诺【阿波罗网编译】</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://ucrjuhgr.xhuyd.press/?name=c1304864&key=encdeuyadochlaxz&from=pw2">华府的蹊跷</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ucrjuhgr.xhuyd.press/?name=c1304821&key=encdeuyadochlaxz&from=pw2">【中国禁闻】2月9日完整版</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://tny.im/rbX4g">【中国禁闻】2月9日完整版</a></td></tr>
 
  </Table>
 
