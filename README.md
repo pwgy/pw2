@@ -1,7 +1,7 @@
 
  ### &nbsp;&nbsp;&nbsp;&nbsp; [君子不立危樯之下，赶快自救保平安🍎 快快快 📩](https://github.com/pwgy/td/blob/master/README.md)
 
- ### &nbsp;&nbsp;&nbsp;&nbsp; [三退大潮](https://www.xkide.work/?key=pmaqilqynqnqirmb&pin=18462919&ag=ogQuit&from=pw2) 
+ ### &nbsp;&nbsp;&nbsp;&nbsp; [三退大潮](https://ww3.xkide.work/?key=zuuelqyfglsfjmgm&pin=65881581&ag=ogQuit&from=pw2) 
 
 ## <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png"> 墙外头条文章专区 （每日更新)
 
