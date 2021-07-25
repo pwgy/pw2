@@ -6,8 +6,6 @@
 ## <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png"> 墙外头条文章专区 （每日更新)
 
 <Table>
-<tr><td colspan="2" align="left"><a href="https://cdn.cgei.work/?ag=c1472472&key=wjsottsjpndjwfkg&from=pw2">傳鄭州隧道拖出雙節公交車 遇難人數被質疑(視頻)
-</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://cdn.cgei.work/?ag=c1472568&key=wjsottsjpndjwfkg&from=pw2">【十字路口】鄭州隧道變墳場 習近平遠走西藏 躲誰？
 </a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://cdn.cgei.work/?ag=c1472521&key=wjsottsjpndjwfkg&from=pw2">九成打過疫苗！亞洲最大雞肉加工廠卻爆“千人確診慘案”
