@@ -6,8 +6,6 @@
 ## <img src="https://img.icons8.com/cute-clipart/2x/circled-right.png"> 墙外头条文章专区 （每日更新)
 
 <Table>
-<tr><td colspan="2" align="left"><a href="https://cdn.cgei.work/?ag=c1477785&key=wjsottsjpndjwfkg&from=pw2">15歲少女車上壞壞 突發異狀終悲劇收場
-</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://cdn.cgei.work/?ag=c1477786&key=wjsottsjpndjwfkg&from=pw2">被投訴！中國羽球“我曹”女雙慘了…
 </a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://cdn.cgei.work/?ag=c1477795&key=wjsottsjpndjwfkg&from=pw2">中國選手領獎戴毛象章恐違規 官媒急修圖引小粉紅不滿
