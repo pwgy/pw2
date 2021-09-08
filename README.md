@@ -16,8 +16,6 @@
 </a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://eqbpwckh.azureedge.net/?ag=c1497262&key=wjsottsjpndjwfkg&from=pw2">傳軍老虎谷俊山從秦城到301就醫 帶手銬、眼罩
 </a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://eqbpwckh.azureedge.net/?ag=c1497333&key=wjsottsjpndjwfkg&from=pw2">傳軍老虎谷俊山從秦城到301就醫 帶手銬、眼罩
-</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://eqbpwckh.azureedge.net/?ag=c1497248&key=wjsottsjpndjwfkg&from=pw2">大連日本風情街死於襁褓 日本輿論嘩然民眾憤怒
 </a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://eqbpwckh.azureedge.net/?ag=c1497250&key=wjsottsjpndjwfkg&from=pw2">【拍案驚奇】趙薇供詞引恐慌？江派人士連出事
